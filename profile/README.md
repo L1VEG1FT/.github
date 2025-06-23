@@ -77,25 +77,26 @@
 <table>
   <tr>
     <th>Bankobet</th>
-    <th>1xbet</th>
+    <th>RamadaBet</th>
     <th>Bizbet</th>
   </tr>
   <tr>
     <td><a href="https://cutt.ly/PrEYyj8X" target="_blank"><img src="https://resmim.net/cdn/2025/06/23/TOpE4q.jpg" width="250" /></a></td>
-    <td><a href="http://shortlinkapp.com/1xbet" target="_blank"><img src="https://resmim.net/cdn/2025/06/01/Tdq5Sc.jpg" width="250" /></a></td>
+    <td><a href="https://cutt.ly/ndseormd" target="_blank"><img src="https://resmim.net/cdn/2025/06/23/TOUHrc.jpg" width="250" /></a></td>
     <td><a href="https://refpa7480988.top/L?tag=d_4420769m_62079c_&site=4420769&ad=62079" target="_blank"><img src="https://resmim.net/cdn/2025/06/08/Tbkxd1.jpg" width="250" /></a></td>
   </tr>
   <tr>
     <td>%100 SLOT ve CASİNO BONUSU 🎁</td>
-    <td>5500 TL DENEME BONUSU 🎁</td>
+    <td>%100 SLOT BONUSU 🎁</td>
     <td>%100 HOŞGELDİN BONUSU <br> 3000 TL 🎁</td>
   </tr>
   <tr>
     <td><a href="https://cutt.ly/PrEYyj8X" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-ff69b4?style=for-the-badge&logoColor=black" /></a></td>
-    <td><a href="http://shortlinkapp.com/1xbet" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-007BFF?style=for-the-badge&logoColor=white" /></a></td>
+    <td><a href="https://cutt.ly/ndseormd" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-ffffff?style=for-the-badge&logoColor=black" /></a></td>
     <td><a href="https://refpa7480988.top/L?tag=d_4420769m_62079c_&site=4420769&ad=62079" target="_blank"><img src="https://img.shields.io/badge/Bonusu_Al-Hemen_Tıkla-FF6600?style=for-the-badge&logoColor=white" /></a></td>
   </tr>
 </table>
+
 
 <!-- TELEGRAM VE İLETİŞİM -->
 <h2>📲 Bonus Telegram Kanalı</h2>
