@@ -6,7 +6,7 @@
   <tr>
     <th>Kralbet</th>
     <th>Sahabet</th>
-    <th>Onwin</th>
+    <th>Onwinn</th>
   </tr>
   <tr>
     <td><a href="https://cutt.ly/KrQnVYMx" target="_blank"><img src="https://resmim.net/cdn/2025/06/14/T1NfO3.jpg" width="250" /></a></td>
