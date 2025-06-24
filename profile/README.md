@@ -1,12 +1,14 @@
 # ✅ Güvenilir Bahis Siteleri – 2025'in En Güncel Rehberi
 
 
+<h2>🏆 Güvenilir Bahis Siteleri 2025</h2>
+
 <!-- 1. SATIR -->
 <table>
   <tr>
     <th>Kralbet</th>
     <th>Sahabet</th>
-    <th>Onwinn</th>
+    <th>Onwin</th>
   </tr>
   <tr>
     <td><a href="https://cutt.ly/KrQnVYMx" target="_blank"><img src="https://resmim.net/cdn/2025/06/14/T1NfO3.jpg" width="250" /></a></td>
